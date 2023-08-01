@@ -19,5 +19,6 @@ B) Não difundir propaganda ou conteúdo de natureza racista, xenofóbica, ou ca
 C) Não causar danos aos sistemas físicos (hardwares) e lógicos (softwares) da loja virtual Loja Virtual Luxx MakeUp, de seus fornecedores ou terceiros, para introduzir ou disseminar vírus informáticos ou quaisquer outros sistemas de hardware ou software que sejam capazes de causar danos anteriormente mencionados.
 Mais informações
 Esperemos que esteja esclarecido.
+Caso tenha dúvidads, entra em contato por esse e-mail: juniorsuporte2011@live.com
 
 Esta política é efetiva a partir de Oct/2021.
